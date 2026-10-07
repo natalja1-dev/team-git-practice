@@ -1,1 +1,1 @@
-Team motto: Code, learn, improve!
+Team motto: We can do it!
